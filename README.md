@@ -15,6 +15,6 @@ Hi, I'm **Lossavi KPONON-EKLOU**!
 
 ## Connect with Me  
 - Email: [olivierlos1974@gmail.com](mailto:olivierlos1974@gmail.com)  
-- LinkedIn: [linkedin.com/in/lossavi-kponon-eklou](https://linkedin.com/in/lossavi-kponon-eklou)  
+- LinkedIn: [linkedin.com/in/lossavi-kponon-eklou-5aa0a4269](https://linkedin.com/in/lossavi-kponon-eklou5aa0a4269)  
 
 Thank you for stopping by! Check out my other repositories for more projects and resources.  
